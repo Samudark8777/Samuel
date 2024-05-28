@@ -12,4 +12,6 @@ samuel.passarelo2011@gmail.com
 
 @samuel_passarelo
 
-![https://tenor.com/view/hello-gojo-satoru-gojo-satoru-gif-7810568014399403739](link)
+![](https://tenor.com/view/hello-gojo-satoru-gojo-satoru-gif-7810568014399403739)
+
+
